@@ -1,1 +1,1 @@
-### Hi there 👋 I'm Sinan Kocatürk
+### Hi there 👋 I'm Sinan Kocaturk
